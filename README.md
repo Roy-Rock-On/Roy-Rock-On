@@ -2,5 +2,5 @@
 - 👀 I’m interested in: All kinds of stuff.
 - 🌱 I’m currently learning: A lot, all the time.
 - 💞️ I’m looking to collaborate on: nothing right now- just doing my own thing.
-- 📫 How to reach me: Check out my website- sqyd.studio or email me- dev@sqyd.studio 
+- 📫 How to reach me: Check out my website- [sqyd.studio](sqyd.studio) or email me- dev@sqyd.studio 
 - ⚡ Fun fact: Been trying to think of a fun fact for like 5 minutes- and it's probably best I move on so I don't get stuck here all day. 
